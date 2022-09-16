@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Pedro-HDSR
+- 👀 I’m interested in programming
+- 🌱 I’m currently learning something new
+- 💞️ I’m looking to collaborate on cool projects (specially games)
+- 📫 How to reach me: linkedin.com/in/pedro-hdsrx-026495250
